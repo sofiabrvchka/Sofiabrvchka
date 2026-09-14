@@ -1,4 +1,3 @@
-<meta name="google-site-verification" content="lABpvAza5Oox5Eol0EF93xRy38P88I9xF8OXqXEisuE" />
 # Hi there, I'm Sofija Brovchuka 👋
 Economics student based in Riga, Latvia 🇱🇻
 
