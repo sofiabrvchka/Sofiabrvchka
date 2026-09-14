@@ -6,9 +6,8 @@ Economics student based in Riga, Latvia 🇱🇻
 * Economics, financial analysis, and market insights
 
 ### 🌿 Hobbies & Personal Interests
-* Tech, IT & casual exploring
-* Indoor gardening & botany
-* Automotive culture & road trips
+* Casual exploring
+* Culture events & trips
 
 ---
 
